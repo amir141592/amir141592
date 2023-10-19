@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on any MEAN stack project
 - 📫 Email: amir.allahdadian@gmail.com 
 - 📞 Whats app: +98 9900045145 
-- ✉️ Discord: -\_A\_-#0329
+- ✉️ Discord: -a-
